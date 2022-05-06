@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Stramas
+- 👀 I’m interested in cooking and gardening
+- 🌱 I’m currently learning gardening
+- 📫 This is my website:https://www.vegega.com/
+-🌱 I'm a positive person,welcome to contact me
